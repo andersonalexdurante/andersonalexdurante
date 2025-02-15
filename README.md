@@ -1,2 +1,2 @@
-<p align="center"><img width="70%" src="https://i.ibb.co/QPn73xg/ezgif-com-resize.gif"></p>
+<p align="center"><img width="70%" src="https://s3.gifyu.com/images/bSSu0.gif"></p>
   
